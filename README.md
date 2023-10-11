@@ -1,1 +1,1 @@
-# https://www.minukkim.com
+## Please go to https://www.minukkim.com
