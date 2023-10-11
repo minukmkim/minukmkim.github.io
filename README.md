@@ -1,1 +1,1 @@
-# minukmkim.github.io
+# https://www.minukkim.com
