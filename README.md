@@ -1,1 +1,1 @@
-## Please go to https://www.minukkim.com
+## Please visit https://www.minukkim.com for up-to-date website!
